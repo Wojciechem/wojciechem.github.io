@@ -1,1 +1,0 @@
-# Ranting in plaintext
